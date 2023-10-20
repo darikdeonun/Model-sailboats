@@ -1,1 +1,2 @@
-# Model-sailboats
+# Black pearl ship model
+With a length of 156 feet (47.5 m) and armed with 32 cannons in the film, the [Black pearl ship model](https://omhusa.com/productsdetails.asp?item=T305) is built like a galleon. As a class of ships from the late-16th to 19th century, the galleon was an enormous, multi-deck, square-rigged sailing ship with three or four masts. There was once a real ship named the Black Pearl. It was captained by Sir Henry Morgan but sank in a battle. The fictional ship hasn't fared much better, having been sunk at least three times. But, like Jack Sparrow, the Black Pearl is notorious for being nearly impossible to destroy. 
